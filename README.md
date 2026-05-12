@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CECG890714HVZRLS05
+CECG890714HVZRLS05
